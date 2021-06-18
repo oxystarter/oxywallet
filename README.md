@@ -3,4 +3,4 @@ OXY DECENTRALIZED WALLET
 
 
 DOWNLOAD APK FILE FOR ANDROID MOBILES :
-https://www.mediafire.com/file/d42dy0arivqyob8/oxystarter-wallet.apk/file
+https://www.mediafire.com/file/0olmptg54a1k6rj/oxy-walletv3.apk/file
